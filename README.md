@@ -1,2 +1,2 @@
-# Resume-Templates
+# Resume Templates
 Free Resume Templates
